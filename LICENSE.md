@@ -1,4 +1,4 @@
-# 
+# Custom Vegas Pro for PC addons is the best Vegas Pro for PC addons with title-animation and VST-support. Safe, reliable, and optimized for maximum performance.
 
 
 
